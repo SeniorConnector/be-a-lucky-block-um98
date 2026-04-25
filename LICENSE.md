@@ -1,4 +1,4 @@
-
+bedwars Script elite offers the most advanced bedwars Script, with fly and anti-ban. Perfect for dominating any match.
 
 
 
